@@ -46,8 +46,7 @@ Through this project, the following skills were developed:
 
 ## Live Website
 
-Add your website link here:
-https://your-website-url.com
+https://anjalibiyyala08.wixsite.com/candle-haven
 
 ## Author
 
